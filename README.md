@@ -114,4 +114,4 @@
 
 *EPIC MODE*
 
-![alt tag](https://imgur.com/a/mfTqF)
+![alt tag](ss.png)
